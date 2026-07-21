@@ -1,4 +1,4 @@
-# Hi, I'm Tanishka kushwah 👋
+# Hi, I'm Tanishka kushwah 
 
 ## 🎯 Aspiring Data Analyst
 

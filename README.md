@@ -38,7 +38,7 @@ I am passionate about turning raw data into meaningful insights. I enjoy solving
 
 ## 📫 Connect with Me
 
-- LinkedIn: https://www.linkedin.com/in/tanishka-kushwah-96ab9b404
+- LinkedIn: https://www.linkedin.com/in/tanishka-kushwah123
 - Email: tanishkakushwah12341@gmail.com
 
 ⭐ Thank you for visiting my GitHub profile!
